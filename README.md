@@ -1,0 +1,1 @@
+Este destina-se a instruir crianças sobre a importância da poesia
